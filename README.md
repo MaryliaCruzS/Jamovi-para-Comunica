@@ -1,0 +1,2 @@
+# Jamovi-para-Comunica
+ 
